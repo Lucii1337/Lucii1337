@@ -4,6 +4,4 @@
 - 📫 My discord is : andrei1337#2543
            
 	     The only master i have
-	            Is my superior dedicasion 
-		             :)
-	               
+	(ΦωΦ)       Is my superior dedicasion ...
